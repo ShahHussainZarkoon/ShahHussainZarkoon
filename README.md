@@ -1,3 +1,4 @@
+🎇♦️🎇♦️🎇♦️🎇♦️🎇♦️
 -👋 Hi! I AM SHAH HUSSAIN ZARKOON FORM 
 KOHLU BALOCHISTAN. 
 - 🔭 I’m interested in ...
@@ -13,8 +14,7 @@ Whatsapp, tiktok, websites.etc)
 How to create a command for hacking
 How to recover fb, wtsp, tiktok, insta, and 
 Other account. 
- - 
-
+ ♦️ 🎇 ☸ 🎇 ♦️ 🎇 ☸ 🎇 
 
 
 
